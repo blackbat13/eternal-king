@@ -1,6 +1,6 @@
 # Damien - The Eternal King
 
-![Sigil of The Eternal King](../assets/images/sigil.gif){ align=right }
+![Damien](../assets/images/Damien.png){ align=right width="300" }
 
 The universe did not begin with a bang, but with a *laugh*.
 
