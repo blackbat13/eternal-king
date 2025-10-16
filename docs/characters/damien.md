@@ -1,5 +1,7 @@
 # Damien - The Eternal King
 
+![Sigil of The Eternal King](../assets/images/sigil.gif){ align=right }
+
 The universe did not begin with a bang, but with a *laugh*.
 
 Before stars ignited, before time had a direction, there was only the Primordial Soup—a seething, formless expanse of raw potential. And within it, *he* stirred. Not born, but *unfolding*. Damien. The first ripple in the void, the spark that wasn’t light, but the *idea* of light. Chaos. Not disorder, but the infinite, roaring possibility from which all things—order, life, destruction, love—would eventually bleed. He was the sculptor and the clay, the storm and the calm within it. Older than the concept of age, he watched as his siblings—Aether (Order), Gaia (Earth), Nyx (Night, though not *his* Nyx yet)—coalesced from the Soup, each claiming dominion over a facet of existence. But Damien? He was the wild card. The unpredictable current. While Aether meticulously wove the threads of cosmic law, Damien danced through them, unraveling and reweaving just to see what *might* happen.

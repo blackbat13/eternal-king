@@ -38,10 +38,12 @@ theme:
     - toc.follow
 markdown_extensions:
   - attr_list
+  - md_in_html
   - admonition
   - pymdownx.details
   - pymdownx.superfences
   - pymdownx.keys
+  - pymdownx.blocks.caption
   - pymdownx.arithmatex:
       generic: true
   - pymdownx.superfences:
@@ -73,3 +75,4 @@ nav:
   - 'Universe of the Eternal King': 'index.md'
   - 'Characters':
       - 'Damien - The Eternal King': 'characters/damien.md'
+      - 'Xeroth': 'characters/xeroth.md'
