@@ -1,6 +1,6 @@
 # Xeroth
 
-![Xeroth](../assets/images/Xeroth.png){ align=right }
+![Xeroth](../assets/images/Xeroth.png){ align=right, width="300" }
 
 The universe didn’t begin with silence. It began with *laughter*—sharp, irreverent, and utterly unimpressed.  
 
