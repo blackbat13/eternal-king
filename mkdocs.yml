@@ -74,9 +74,20 @@ extra_css:
 nav:
   - 'Universe of the Eternal King': 'index.md'
   - 'Characters':
-      - 'Damien - The Eternal King': 'characters/damien.md'
-      - 'Xeroth': 'characters/xeroth.md'
-      - 'Lorain': 'characters/lorain.md'
-      - 'Vera': 'characters/vera.md'
-      - 'Agnes': 'characters/agnes.md'
-      - 'Nyx': 'characters/nyx.md'
+    - 'Damien - The Eternal King': 'characters/damien.md'
+    - 'Xeroth': 'characters/xeroth.md'
+    - 'Lorain': 'characters/lorain.md'
+    - 'Vera': 'characters/vera.md'
+    - 'Agnes': 'characters/agnes.md'
+    - 'Nyx': 'characters/nyx.md'
+  - 'Stories':
+    - 'Lorain':
+      - 'Sweet Sixteen': 'stories/lorain/001.md'
+      - '18th Birthday': 'stories/lorain/002.md'
+      - 'Study Break': 'stories/lorain/003.md'
+      - 'The Barista Experience': 'stories/lorain/004.md'
+      - 'MIT': 'stories/lorain/005.md'
+      - 'Retirement': 'stories/lorain/006.md'
+      - 'Enough with the Witches': 'stories/lorain/007.md'
+      - 'The Past': 'stories/lorain/008.md'
+      - 'Fatherly Love': 'stories/lorain/009.md'
