@@ -1,4 +1,4 @@
-site_name: ETERNAL-KING
+site_name: The Eternal King
 site_url: https://blackbat13.github.io/eternal-king/
 plugins:
   - search
@@ -11,7 +11,7 @@ theme:
   icon:
     logo: material/castle
   font:
-    text: Metamorphous
+    text: Amarante
   palette:
     - scheme: default
       primary: deep purple
