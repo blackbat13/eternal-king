@@ -8,7 +8,7 @@ Not for stealth—she’d long ago learned to move like smoke—but because they
 
 She’d been six when the wolves came for her family.  
 
-Not literal wolves—men in wolf-pelt coats, Bratva enforcers sent to collect a debt her father couldn’t pay. They took everything: the apartment, the bakery, her parents’ lives. By eight, Vera was property of the Bratva, trained to kill with needles, poisons, or the flick of a wrist. Her sister, Anya, was all she had left—until Anya tried to run. Until the Bratva burned their safehouse with Anya inside, laughing as Vera clawed at the flames, her palms blistering, her screams drowned by the roar of the fire. *"Now you’re truly mine,"* the Bratva boss had whispered, pressing a knife into her small hand. *"Kill to live. Live to kill."*  
+Not literal wolves—men in wolf-pelt coats, Bratva enforcers sent to collect a debt her father couldn’t pay. They took everything: the apartment, the bakery, her parents’ lives. By eight, Vera was property of the Bratva, trained to kill with needles, poisons, or the flick of a wrist. Her sister, Anya, was all she had left—until Anya tried to run. Until the Bratva burned their safehouse with Anya inside, laughing as Vera clawed at the flames, her palms blistering, her screams drowned by the roar of the fire. *"Now you’re truly mine"* the Bratva boss had whispered, pressing a knife into her small hand. *"Kill to live. Live to kill."*  
 
 For years, she did.  
 
@@ -18,7 +18,7 @@ Then came the night she stabbed a god in the heart.
 
 Damien found her in the ruins of a dead city, while he was hunting a warlord who’d trafficked souls through dimensional rifts. Vera didn’t know he was the Eternal King—just another mark, another heartbeat to silence. She lunged from the shadows, her knife sinking deep into his chest… and *stuck*. Not in flesh, but in something older, vaster—a storm given form. Damien didn’t flinch. He caught her wrist, his grip gentle as snowfall, and looked into her eyes. Not with anger. With *recognition*.  
 
-*"You’re tired,"* he said, plucking the knife from his chest like a stray hair. *"Tired of being a weapon. Tired of burning."*  
+*"You’re tired"* he said, plucking the knife from his chest like a stray hair. *"Tired of being a weapon. Tired of burning."*  
 
 Vera spat in his face. *"Kill me or let me go."*  
 
@@ -48,7 +48,7 @@ She became his right hand. Not because she was the deadliest, but because she *u
 
 But in the Castle Between, she was *Vera*.  
 
-Lorain dragged her to the bar for "sister nights," where Vera taught Nyx how to throw knives while Xeroth heckled them from the rafters. *"Stab me again, Zharkova,"* he’d taunt, shifting into a porcelain teacup. She’d oblige—*clink*—and he’d reappear as a smoke dragon, blowing rings into her hair. *"Bored? Good. Now pour me a drink."*  
+Lorain dragged her to the bar for "sister nights" where Vera taught Nyx how to throw knives while Xeroth heckled them from the rafters. *"Stab me again, Zharkova"* he’d taunt, shifting into a porcelain teacup. She’d oblige—*clink*—and he’d reappear as a smoke dragon, blowing rings into her hair. *"Bored? Good. Now pour me a drink."*  
 
 Damien called her *"little wolf"*, and she called him *"moy tsar"*, just to watch him roll his eyes. When he raged after a betrayal, she’d stand in his path, boots planted, and say *"Enough."* When Lorain scolded him for turning a planet into sentient jelly, Vera would add *"You owe me new boots, moy tsar. The old ones melted."*  
 

@@ -17,7 +17,7 @@ It *unstitched reality*.
 One moment: frozen Nordic forest. The next: **Lorain’s Bar**, mid-sentence as Xeroth, in a form of disgruntled badger, lectured a sobbing time-traveler about "emotional baggage." Agnes collapsed onto the floor, hair flaring like a supernova, the token smoking in her grip. Lorain was at her side instantly, wings shielding her from the bar’s curious stares. *"Breathe"* she murmured, pressing a glass of starlight into Agnes’ trembling hand. *"You’re safe here."*  
 
 But safety came with strings.  
-The Weavers could still *feel* her—a splinter in the multiverse’s skin. Damien appeared in a swirl of shattered galaxies, eyes narrowed at the token in her palm. *"Ah,"* he said, plucking it from her. *"Baba Yaga’s key. No wonder they’re hunting you."* He tossed it to Xeroth. *"Hide this. And fetch the old witch. Tell her… her prodigy’s home."*  
+The Weavers could still *feel* her—a splinter in the multiverse’s skin. Damien appeared in a swirl of shattered galaxies, eyes narrowed at the token in her palm. *"Ah"* he said, plucking it from her. *"Baba Yaga’s key. No wonder they’re hunting you."* He tossed it to Xeroth. *"Hide this. And fetch the old witch. Tell her… her prodigy’s home."*  
 
 ---  
 

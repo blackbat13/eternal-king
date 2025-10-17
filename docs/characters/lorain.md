@@ -8,7 +8,7 @@ So the woman did the only thing left. She knelt in the snow, pressed her lips to
 
 Then she looked up—and saw *him*.  
 
-Damien stood there, not as a king, but as a shadow given form. He’d come to watch empires crumble, not cradles break. But the woman’s eyes held no fear, only desperate, feral hope. She thrust the bundle into his arms. "Keep her *alive*," she rasped, her blood seeping into the snow. "Her name is Lorain. *Remember it*." Her last breath fogged the air, then vanished.  
+Damien stood there, not as a king, but as a shadow given form. He’d come to watch empires crumble, not cradles break. But the woman’s eyes held no fear, only desperate, feral hope. She thrust the bundle into his arms. "Keep her *alive*" she rasped, her blood seeping into the snow. "Her name is Lorain. *Remember it*." Her last breath fogged the air, then vanished.  
 
 The baby didn’t cry. She *glowed*.
 
@@ -18,7 +18,7 @@ He didn’t think. He *acted*.
 
 Pouring a thread of his own essence—not the roaring inferno of creation, but the quiet ember of *protection*—into her veins. Chaos met Chaos. Mortality fused with eternity. Her skin flared silver, then settled. Wings, translucent as dawn mist and shimmering with stardust, unfurled from her back for a single, breathless second before folding away. She cooed, grabbing his finger with a grip that could crack planets.  
 
-*"Sparrow,"* he murmured, the word raw in his throat. *"You’re my Sparrow now."*  
+*"Sparrow"* he murmured, the word raw in his throat. *"You’re my Sparrow now."*  
 
 ---  
 
@@ -38,7 +38,7 @@ The Bar Between wasn’t built. It *grew*.
 
 Like a dandelion pushing through cosmic cracks, Lorain’s sanctuary sprouted where dimensions fray. One moment, empty void; the next, a warm-lit haven smelling of spiced rum and starlight. Patrons drifted in: time-lost samurai, weeping goblin merchants, a depressed black hole sipping espresso. Lorain moved among them—a woman frozen in her radiant thirties, wings folded like a promise, hair the color of spun sunlight. She served "Nyx’s Midnight Brew" (vampire tears, liquid shadow, and a hint of rebellion) and "Vera’s Last Shot" (brimstone, vengeance, and unexpected kindness).  
 
-Xeroth was her chaos conductor. Today, a sentient coffee cup that judged your life choices ("*Oof. You *do* know regret isn’t a food group, right?*"). Yesterday, a jukebox playing songs from dead civilizations. He’d steal tips, knock over stools, and call her "kid" just to see her roll her eyes—but if a patron threatened her? He’d become a dragon made of shattered mirrors, reflecting their cowardice back at them. *"Mess with the Sparrow,"* he’d hiss, scales glinting, *"and you answer to the storm."*  
+Xeroth was her chaos conductor. Today, a sentient coffee cup that judged your life choices ("*Oof. You *do* know regret isn’t a food group, right?*"). Yesterday, a jukebox playing songs from dead civilizations. He’d steal tips, knock over stools, and call her "kid" just to see her roll her eyes—but if a patron threatened her? He’d become a dragon made of shattered mirrors, reflecting their cowardice back at them. *"Mess with the Sparrow"* he’d hiss, scales glinting, *"and you answer to the storm."*  
 
 But Lorain’s true power was her *voice*.  
 

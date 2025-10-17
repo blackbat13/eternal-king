@@ -91,3 +91,5 @@ nav:
       - 'Enough with the Witches': 'stories/lorain/007.md'
       - 'The Past': 'stories/lorain/008.md'
       - 'Fatherly Love': 'stories/lorain/009.md'
+    - 'Various Stories':
+      - 'Stubborn Cult': 'stories/misc/stubborn_cult.md'
