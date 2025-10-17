@@ -1,5 +1,7 @@
 # Stubborn Cult
 
+![Stubborn Cult](../../assets/images/covers/misc/stubborn_cult.png){ align=right width="300" }
+
 The air in the temple was thick with incense and false devotion. Candles flickered in geometric patterns, arranged according to the sacred $\pi$-sequence the cult claimed would summon the *true* Eternal King on the $13^{th}$ hour of the $7^{th}$ moon. Robed figures chanted in broken Enochian, their voices rising in a crescendo of delusion.
 
 Damien stood at the back, arms crossed, wearing the form of a weary traveler — dusty cloak, sunburnt skin, eyes hidden beneath a hood. He had whispered his name into the wind. He had made the flames burn blue. He had reversed the flow of time in a single chalice of wine, causing it to refill itself from empty air. And still, they dismissed him.
