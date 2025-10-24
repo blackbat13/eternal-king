@@ -122,19 +122,19 @@ Then it’s gone.
 Because Chaos and Change?
 They’re not brothers.
 They’re *echoes*.
-One is the spark.  
-The other is the flame’s direction.  
-One breaks.  
-The other rebuilds—into something it won’t stay.  
-They don’t need to speak.  
-They don’t need to meet.  
+One is the spark.
+The other is the flame’s direction.
+One breaks.
+The other rebuilds—into something it won’t stay.
+They don’t need to speak.
+They don’t need to meet.
 They just *are*.
 
-And when the universe finally asks, *"Why is nothing ever the same?"*  
+And when the universe finally asks, *"Why is nothing ever the same?"*
 They’ll both smile.
 And say nothing.
 Because the answer?
-Is already happening.  
+Is already happening.
 
 ## Final Line — Spoken by a Child in a Dream, Never Woken From
 
