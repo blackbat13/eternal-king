@@ -138,4 +138,4 @@ Is already happening.
 
 ## Final Line — Spoken by a Child in a Dream, Never Woken From
 
-**"He was here. Then he wasn’t. But also—he never left."**
+"He was here. Then he wasn’t. But also—he never left."
