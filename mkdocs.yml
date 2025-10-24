@@ -74,12 +74,12 @@ extra_css:
 nav:
   - 'Universe of the Eternal King': 'index.md'
   - 'Main Characters':
-    - 'Damien - The Eternal King': 'characters/damien.md'
-    - 'Xeroth': 'characters/xeroth.md'
-    - 'Lorain': 'characters/lorain.md'
-    - 'Vera': 'characters/vera.md'
-    - 'Agnes': 'characters/agnes.md'
-    - 'Nyx': 'characters/nyx.md'
+    - 'Damien - The Eternal King': 'main_characters/damien.md'
+    - 'Xeroth': 'main_characters/xeroth.md'
+    - 'Lorain': 'main_characters/lorain.md'
+    - 'Vera': 'main_characters/vera.md'
+    - 'Agnes': 'main_characters/agnes.md'
+    - 'Nyx': 'main_characters/nyx.md'
   - 'Primordials':
     - 'Death': 'primordials/death.md'
     - 'Time': 'primordials/time.md'
