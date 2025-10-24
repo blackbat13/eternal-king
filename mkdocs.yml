@@ -73,13 +73,24 @@ extra_css:
   - stylesheets/extra.css
 nav:
   - 'Universe of the Eternal King': 'index.md'
-  - 'Characters':
+  - 'Main Characters':
     - 'Damien - The Eternal King': 'characters/damien.md'
     - 'Xeroth': 'characters/xeroth.md'
     - 'Lorain': 'characters/lorain.md'
     - 'Vera': 'characters/vera.md'
     - 'Agnes': 'characters/agnes.md'
     - 'Nyx': 'characters/nyx.md'
+  - 'Primordials':
+    - 'Death': 'primordials/death.md'
+    - 'Time': 'primordials/time.md'
+    - 'Order': 'primordials/order.md'
+    - 'Doubt': 'primordials/doubt.md'
+    - 'Cycle': 'primordials/cycle.md'
+    - 'Night': 'primordials/night.md'
+    - 'Change': 'primordials/change.md'
+    - 'Betrayal': 'primordials/betrayal.md'
+    - 'Four Horsemen': 'primordials/four_horsemen.md'
+    - 'Story': 'primordials/story.md'
   - 'Stories':
     - 'Lorain':
       - 'Sweet Sixteen': 'stories/lorain/001.md'
