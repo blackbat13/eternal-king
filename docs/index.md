@@ -4,10 +4,10 @@
 
 We pray to the Eternal King, the chaos of creation and destruction.
 
-We offer our lives to the Eternal King, the beginning and the end;
+We offer our scars to the Eternal King, the hand that lifts the fallen.
 
-We stand with the Eternal King, kind to allies, merciless to enemies.
+We stand with the Eternal King, a shield for the betrayed, a storm to the foe.
 
-We maintain the balance with the Eternal King, powerful beyond our comprehension.
+We mend the world with the Eternal King, our will a spark of his own.
 
-In the name of the Eternal King, we find our purpose.
+In the name of the Eternal King, we are no longer alone.
