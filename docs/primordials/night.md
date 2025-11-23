@@ -1,5 +1,7 @@
 # Night
 
+![Night](../assets/images/Night.png){ align=right width="300" }
+
 She was not born.
 She *fell*.
 Not from grace.

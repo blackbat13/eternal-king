@@ -1,5 +1,7 @@
 # Death
 
+![Death](../assets/images/Death.png){ align=right width="300" }
+
 Death walks between worlds not with the heavy tread of doom, but with the quiet sigh of a breath exhaled after a long life.
 
 They appear as the figure mortals have always feared: tall, robed in folds of blackened starlight that ripple like smoke caught in slow wind, a cowl drawn low over a face that is not empty—but *full*. Where eyes should be, there is not darkness, but the soft glow of distant galaxies, swirling in silent orbits. Their hands, when shown, are neither bone nor flesh, but shifting constellations, each fingertip a dying star collapsing into itself. The scythe they carry is not forged—it *grew*, from the first ending, the first silence, the first loss. Its blade is the edge of entropy, sharp enough to sever soul from body, dream from memory, time from consequence.

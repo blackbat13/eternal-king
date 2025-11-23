@@ -1,5 +1,7 @@
 # Time
 
+![Time](../assets/images/Time.png){ align=right width="300" }
+
 ## [Begin Log: Entry Unknown]
 
 Chronos walks not forward, not backward, but *through*.

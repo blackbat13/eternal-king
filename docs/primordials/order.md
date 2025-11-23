@@ -1,5 +1,7 @@
 # Order
 
+![Order](../assets/images/Order.png){ align=right width="300" }
+
 **♪**
 
 Single musical note, pure and unchanging. That is Their name. Not a sound your ears can hold—only your bones, your blood, your soul. It is the note that existed before vibration, the first harmony struck in the silence after nothing. It is pure, unbroken, absolute. To hear it is to understand the universe’s design—the precise angle of a snowflake’s arm, the exact orbit of a moon, the way every atom knows its place.

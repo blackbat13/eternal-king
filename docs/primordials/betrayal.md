@@ -1,4 +1,6 @@
-## Betrayal
+# Betrayal
+
+![Betrayal](../assets/images/Betrayal.png){ align=right width="300" }
 
 There is a name.
 But it will not be spoken here.

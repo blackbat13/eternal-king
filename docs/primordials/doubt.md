@@ -1,5 +1,7 @@
 # Doubt
 
+![Doubt](../assets/images/Doubt.png){ align=right width="300" }
+
 …Wait.
 Was it *he*?
 I said "he." But who said that was right? Who decided the embodiment of Doubt had to be a *he*? That it had to be *anything* at all?

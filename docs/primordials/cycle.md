@@ -1,5 +1,7 @@
 # Cycle
 
+![Cycle](../assets/images/Cycle.png){ align=right width="300" }
+
 He is born screaming, like all of them.
 This time, in a crumbling apartment above a spice market in a city that doesn’t exist on any current map. The air is thick with cumin and diesel, and the walls sweat in the monsoon heat. A woman—exhausted, weeping—pulls him to her chest. The midwife cuts the cord and says, "A son. Strong."
 He is not strong.  

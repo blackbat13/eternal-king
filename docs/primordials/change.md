@@ -1,5 +1,7 @@
 # Change
 
+![Change](../assets/images/Change.png){ align=right width="300" }
+
 Once, there was a ripple.
 Not in water.
 In *being*.

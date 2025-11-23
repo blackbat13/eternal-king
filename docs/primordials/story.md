@@ -1,5 +1,7 @@
 # Story
 
+![Story](../assets/images/Story.png){ align=right width="300" }
+
 She was not written.
 She *balanced*.
 On the edge of a sentence.

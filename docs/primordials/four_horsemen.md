@@ -1,5 +1,7 @@
 # Four Horsemen
 
+![Four Horsemen](../assets/images/Four_Horsemen.png){ align=right width="300" }
+
 It started as a joke.
 That’s the truth. The whole, ridiculous, universe-rattling truth.
 Damien was drunk—on starlight, on irony, on the tears of a fallen archangel—and he was flipping through a mortal prophecy scroll one evening, lounging on a comet’s tail, feet kicking in the void.
