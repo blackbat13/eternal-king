@@ -104,3 +104,15 @@ And then?
 Then the wheel will *speak*.
 But not yet.
 Not yet.
+
+## [Analysis: Excerpt from "The Primordial Entities: A Study of Cycle" by Dr. Liora Venn, Year 2034]
+
+"[...] Cycle, as an entity, represents a fundamental force of nature that transcends mere reincarnation. Its ability to embody the perpetual return of life and death suggests a level of influence that operates on both metaphysical and existential planes."
+
+"[...] The manifestations of memory and identity fragmentation in its presence indicate that Cycle exerts a form of existential pressure on living beings, compelling them towards an understanding of their place within the larger cosmic order. This phenomenon challenges our understanding of individuality and raises questions about the interplay between memory, identity, and existence."
+
+"[...] Understanding Cycle as a living entity necessitates a reevaluation of our approaches to metaphysical studies. It is not enough to consider life and death as isolated events; we must also address the deeper, more insidious effects that such an entity can impose on our understanding of existence."
+
+## [Insert: Cycle Speaking — Audio Fragment Recovered from Survivor]
+
+*"I am the turning of the wheel, the echo that refuses to fade. In my presence, all things return and all things end. You may live and die, but I am the constant that binds you. Embrace the cycle, for in it, you will find meaning beyond the fleeting moments of your existence."*
