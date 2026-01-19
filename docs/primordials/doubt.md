@@ -86,3 +86,15 @@ Or—wait.
 Were they?
 
 I don’t think I should have started this.
+
+## [Analysis: Excerpt from "The Nature of Doubt: A Study of the Embodiment of Uncertainty" by Dr. Elara Voss, Year 2031]
+
+"[...] The entity known as the Embodiment of Doubt represents a unique challenge to our understanding of primordial forces. Unlike other entities that assert their presence through power or influence, Doubt operates through absence and uncertainty. It is not a force that acts, but one that *inhibits* action, creating a space where choices are questioned and certainties are dismantled."
+
+"[...] Its manifestations—such as the inability to make decisions, the questioning of reality, and the pervasive sense of uncertainty—indicate that Doubt exerts a form of existential pressure on individuals. This pressure compels them to reevaluate their beliefs, actions, and perceptions, often leading to paralysis or inaction."
+
+"[...] Understanding Doubt as a living entity necessitates a reevaluation of our approaches to decision-making and belief systems. It is not enough to address the symptoms of doubt; we must also confront the deeper, more insidious effects that such an entity can impose on human cognition and behavior."
+
+## [Insert: Doubt Speaking — Audio Fragment Recovered from Survivor]
+
+*"I am the question that lingers in the silence, the hesitation before the leap. In my presence, certainty fades and shadows lengthen. You may seek answers, but I am the space between them. But maybe I am not. Maybe I am the answer. Or the question itself. Or maybe none of this is real."*
