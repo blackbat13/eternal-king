@@ -41,7 +41,7 @@ Mutual recognition. Not siblinghood (as with Death, Nyx, etc.), but *mirroring*.
 
 *End Fragment*
 
-## Back at the bar.
+## Back at the bar
 
 The raven tilts its head.
 Lorain slides a glass toward it—no liquid inside. Just shifting colors, like oil on water.
