@@ -1,3 +1,7 @@
+# Fate
+
+![Fate](../assets/images/Fate.png){ align=right width="300" }
+
 The description you are reading begins now. It could not have started at any other moment, for the threads of existence have tightened around this very instant.
 
 You are looking for the embodiment of Fate.
