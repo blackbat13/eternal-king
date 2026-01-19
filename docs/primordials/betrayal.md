@@ -192,3 +192,19 @@ And in the darkness, something *smiles*.
 But you’ll never know if it’s Betrayal.
 Or Chaos.
 Or both.
+
+## [Addendum: Interview with Historian Elara Voss]
+
+*"In my research into ancient texts and survivor accounts, I've come across numerous references to an entity that embodies betrayal. Across cultures and epochs, this figure appears as a shadowy presence that thrives on broken promises and shattered trust. One particularly chilling account describes a leader who was betrayed by his closest advisors, leading to his downfall. The betrayal was so profound that it seemed to echo through time, affecting generations that followed. This entity is not just a metaphor for human treachery; it is a living force that preys on our deepest vulnerabilities, reminding us that trust, once broken, can never be fully restored."*
+
+## [Analysis: Excerpt from "The Primordial Entities: A Study of Betrayal" by Dr. Liora Venn, Year 2034]
+
+"[...] Betrayal, as an entity, represents a fundamental force that exploits the inherent vulnerabilities in social bonds. Its ability to manifest through deception and broken trust suggests a level of influence that operates on both psychological and existential planes."
+
+"[...] The psychological impact of betrayal is well-documented, leading to feelings of isolation, paranoia, and despair. However, when viewed through the lens of this primordial entity, betrayal transcends individual experiences and becomes a pervasive force that can destabilize entire communities and societies."
+
+"[...] Understanding Betrayal as a living entity necessitates a reevaluation of our approaches to trust and social cohesion. It is not enough to address the symptoms of betrayal; we must also confront the deeper, more insidious effects that such an entity can impose on human relationships."
+
+## [Insert: Betrayal Speaking — Audio Fragment Recovered from Survivor]
+
+*"I am the knife in your back, the whisper in your ear that tells you to doubt. In my presence, trust crumbles and hearts shatter. You may cling to your bonds, but I am the fracture that will always find its way in. Embrace the uncertainty, for in it, you will find your true weakness."*
