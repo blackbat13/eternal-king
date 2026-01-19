@@ -82,17 +82,18 @@ nav:
     - 'Nyx': 'main_characters/nyx.md'
     - 'Annabel': 'main_characters/annabel.md'
   - 'Primordials':
-    - 'Death': 'primordials/death.md'
-    - 'Time': 'primordials/time.md'
     - 'Order': 'primordials/order.md'
+    - 'Time': 'primordials/time.md'
     - 'Doubt': 'primordials/doubt.md'
     - 'Cycle': 'primordials/cycle.md'
     - 'Night': 'primordials/night.md'
     - 'Change': 'primordials/change.md'
     - 'Betrayal': 'primordials/betrayal.md'
-    - 'Four Horsemen': 'primordials/four_horsemen.md'
     - 'Story': 'primordials/story.md'
     - 'Fate': 'primordials/fate.md'
+    - 'Death': 'primordials/death.md'
+    - 'War': 'primordials/war.md'
+    - 'Four Horsemen': 'primordials/four_horsemen.md'
   - 'Stories':
     - 'Lorain':
       - 'Sweet Sixteen': 'stories/lorain/001.md'
