@@ -5,13 +5,13 @@
 Once, there was a ripple.
 Not in water.
 In *being*.
-It had no name then. No shape. Just a flicker—like a thought reconsidered, like a leaf turning in the wind before the storm hits. It wasn’t *alive*, not at first. But it *learned* to be.
+It had no name then. No shape. Just a flicker—like a thought reconsidered, like a leaf turning in the wind before the storm hits. It wasn't *alive*, not at first. But it *learned* to be.
 And when it did, it became **Xeroth**.
 
-He sits now—*if* "sits" is the right word—as a raven with feathers like molten silver, perched on the barstool of Lorain’s interdimensional tavern. His eyes shift color with the light: gold, then violet, then the deep red of a dying sun. He watches Vera clean a dagger. Watches Agnes stir a potion that smells like forgotten birthdays. Watches Nyx sharpen her fangs on a whetstone made of silence.
+He sits now—*if* "sits" is the right word—as a raven with feathers like molten silver, perched on the barstool of Lorain's interdimensional tavern. His eyes shift color with the light: gold, then violet, then the deep red of a dying sun. He watches Vera clean a dagger. Watches Agnes stir a potion that smells like forgotten birthdays. Watches Nyx sharpen her fangs on a whetstone made of silence.
 He says nothing.
 But the air hums.
-Because Xeroth doesn’t need to speak to be heard.
+Because Xeroth doesn't need to speak to be heard.
 He *is* the whisper behind the word.  
 The crack in the mirror.  
 The reason you suddenly change your mind mid-sentence.
@@ -24,7 +24,7 @@ Not progress.
 Just… *different*.
 The turn of the page.
 The blink of an eye.
-The moment you realize you’re not who you were yesterday.
+The moment you realize you're not who you were yesterday.
 
 ## Academic Fragment — Recovered from a Burnt Manuscript
 
@@ -54,7 +54,7 @@ The raven blinks.
 Then, in a motion too fast to see, it becomes a fox—small, white, with eyes like clock faces. It knocks the glass over with its paw.
 The colors spill—and rise.
 Form a butterfly.
-Then a child’s laughter.
+Then a child's laughter.
 Then a memory: Damien, centuries ago, standing in a ruined temple, screaming at the sky, furious that mortals had betrayed him again.
 And Xeroth—then a shadow with too many edges—stepping out of the wall.
 Not to comfort.
@@ -89,7 +89,7 @@ weeping for mortals
 who would never love him back.  
 
 And he said:  
-*"You don’t need their loyalty.  
+*"You don't need their loyalty.  
 You need your own permission."*  
 
 And Chaos rose.  
@@ -98,12 +98,12 @@ Not fixed.
 But *different*.  
 
 And Change smiled,  
-because that’s all he ever wanted.  
+because that's all he ever wanted.  
 
 ## Now
 
 The fox becomes a man.
-Tall. Lean. Hair that shifts between black, silver, and flame-red depending on who’s looking. His coat is made of stitched-together moments: a piece of a battlefield, a scrap of a wedding dress, a thread from Damien’s first crown.
+Tall. Lean. Hair that shifts between black, silver, and flame-red depending on who's looking. His coat is made of stitched-together moments: a piece of a battlefield, a scrap of a wedding dress, a thread from Damien's first crown.
 He walks to the window.
 Outside, the void pulses—realities flickering like faulty bulbs.
 
@@ -111,33 +111,33 @@ Outside, the void pulses—realities flickering like faulty bulbs.
 
 Lorain sips her drink. "The shift?"
 
-"Yeah. Something’s coming. A *big* change. Not destruction. Not salvation. Just… *different*."
+"Yeah. Something's coming. A *big* change. Not destruction. Not salvation. Just… *different*."
 
-She frowns. "Papa’s going to love that."
+She frowns. "Papa's going to love that."
 
 Xeroth laughs.
-And for a second, his face becomes Damien’s.
-Then it’s gone.
+And for a second, his face becomes Damien's.
+Then it's gone.
 
 "He already does," Xeroth says. "We always do."
 
 Because Chaos and Change?
-They’re not brothers.
-They’re *echoes*.
+They're not brothers.
+They're *echoes*.
 One is the spark.
-The other is the flame’s direction.
+The other is the flame's direction.
 One breaks.
-The other rebuilds—into something it won’t stay.
-They don’t need to speak.
-They don’t need to meet.
+The other rebuilds—into something it won't stay.
+They don't need to speak.
+They don't need to meet.
 They just *are*.
 
 And when the universe finally asks, *"Why is nothing ever the same?"*
-They’ll both smile.
+They'll both smile.
 And say nothing.
 Because the answer?
 Is already happening.
 
 ## Final Line — Spoken by a Child in a Dream, Never Woken From
 
-"He was here. Then he wasn’t. But also—he never left."
+"He was here. Then he wasn't. But also—he never left."

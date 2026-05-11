@@ -4,7 +4,7 @@
 
 **♪**
 
-Single musical note, pure and unchanging. That is Their name. Not a sound your ears can hold—only your bones, your blood, your soul. It is the note that existed before vibration, the first harmony struck in the silence after nothing. It is pure, unbroken, absolute. To hear it is to understand the universe’s design—the precise angle of a snowflake’s arm, the exact orbit of a moon, the way every atom knows its place.
+Single musical note, pure and unchanging. That is Their name. Not a sound your ears can hold—only your bones, your blood, your soul. It is the note that existed before vibration, the first harmony struck in the silence after nothing. It is pure, unbroken, absolute. To hear it is to understand the universe's design—the precise angle of a snowflake's arm, the exact orbit of a moon, the way every atom knows its place.
 
 They are **Order**.
 
@@ -49,7 +49,7 @@ But the wound remains.
 Every time Damien bends fate, unravels a destiny, turns tragedy into joke and joke into legend—Order feels it. A discordant note. A scratch on perfection.
 And so They act.
 
-A kingdom rises on Damien’s whim—Order ensures it collapses by law.  
+A kingdom rises on Damien's whim—Order ensures it collapses by law.  
 A mortal girl is saved from death—Order ensures her survival births a plague of imbalance.  
 Lorain laughs in her bar, wings of chaos glowing—Order ensures the next sunrise is fractionally dimmer, just to *remind*.
 
@@ -72,11 +72,11 @@ The first and the wild.
 The perfect and the impossible.
 Damien looked up, mouth stained purple.
 
-"You’re late," he said.
+"You're late," he said.
 
-"You’re never on time," came the reply—spoken not in words, but in the resonance of a tuning fork struck in vacuum.
+"You're never on time," came the reply—spoken not in words, but in the resonance of a tuning fork struck in vacuum.
 
-Damien grinned. "But I’m always *right* where I need to be."
+Damien grinned. "But I'm always *right* where I need to be."
 
 Order did not smile.
 But the air between them warmed by half a degree.

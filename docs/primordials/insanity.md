@@ -6,7 +6,7 @@
 
 **Subject Designation:** The Embodiment of Insanity (Self-reports as "The Whisper," "The Static," or simply "Him").
 
-**Attending Physician:** Dr. Aris Thorne, Head of Theoretical Psychopathology, St. Jude’s Asylum for the Mentally Fractured.
+**Attending Physician:** Dr. Aris Thorne, Head of Theoretical Psychopathology, St. Jude's Asylum for the Mentally Fractured.
 
 ### Clinical Presentation
 
@@ -38,7 +38,7 @@ He *smiled*.
 
 It was the first time I saw a distinct, coherent expression on his face. He looked at Damien, a being who embodies the chaos of creation and destruction, with what can only be described as familial recognition. The air in the ward grew heavy with a static that made teeth ache. The patient approached the glass, placed a hand—a hand that suddenly had too many fingers—against it, and spoke clearly for the first time.
 
-"Cousin," he said, his voice dripping with a dark, glee. "You’ve brought the noise. I’ve brought the silence. Let’s see who breaks first."
+"Cousin," he said, his voice dripping with a dark, glee. "You've brought the noise. I've brought the silence. Let's see who breaks first."
 
 It appears that where Damien brings the Chaos that unmakes empires, the Embodiment of Insanity brings the Chaos that unmakes the *observer*. Damien destroys the world outside; this patient destroys the world inside.
 
@@ -50,11 +50,11 @@ Do not let him out. But more importantly, do not look him in the eye. You might 
 
 **Signed,**
 Dr. Aris Thorne
-*St. Jude’s Asylum for the Mentally Fractured*
+*St. Jude's Asylum for the Mentally Fractured*
 
 ## [Addendum: Interview with Survivor — Former Staff Member Lydia Crane]
 
-*"I was an orderly at St. Jude’s when they brought him in. At first, I thought he was just another patient, maybe a bit more disturbed than the others. But then... things started happening. I remember one night, I was checking on him, and he looked right at me. His eyes—they were like black holes swirling with stars. I felt this overwhelming sense of dread, like my own thoughts were unraveling. The next thing I knew, I was laughing uncontrollably in the hallway, unable to stop. They had to sedate me. When I woke up, I couldn’t remember why I was laughing. He’s not just insane; he *is* insanity."*
+*"I was an orderly at St. Jude's when they brought him in. At first, I thought he was just another patient, maybe a bit more disturbed than the others. But then... things started happening. I remember one night, I was checking on him, and he looked right at me. His eyes—they were like black holes swirling with stars. I felt this overwhelming sense of dread, like my own thoughts were unraveling. The next thing I knew, I was laughing uncontrollably in the hallway, unable to stop. They had to sedate me. When I woke up, I couldn't remember why I was laughing. He's not just insane; he *is* insanity."*
 
 ## [Analysis: Excerpt from "The Nature of Madness: A Study of the Embodiment of Insanity" by Dr. Elara Voss, Year 2029]
 

@@ -4,7 +4,7 @@
 
 I have seen many things in my travels. I have walked through valleys where the sun was a cruel, unblinking eye, scorching the earth until it cracked like old bones. I have sat in huts where the air was so thick with fever and dust that it felt like breathing in ash. But nothing—no war, no plague, no natural disaster—holds a candle to the entity I encountered in the wastelands of the southern border. I do not speak of a man, nor a beast. I speak of the very essence of starvation, walking the earth.
 
-It appeared not with a trumpet’s blast, but with a silence. The wind simply stopped. The chirping of the locusts, the cries of the children, the rustle of the dry grass—it all ceased. The heat did not abate, but it changed, becoming heavy and oppressive, pressing against my chest like a stone slab. That was the first sign: the stillness of the grave in a place that should have been full of life.
+It appeared not with a trumpet's blast, but with a silence. The wind simply stopped. The chirping of the locusts, the cries of the children, the rustle of the dry grass—it all ceased. The heat did not abate, but it changed, becoming heavy and oppressive, pressing against my chest like a stone slab. That was the first sign: the stillness of the grave in a place that should have been full of life.
 
 Then, I saw it.
 
@@ -12,7 +12,7 @@ It was difficult to look at, not because it was blinding, but because the eyes r
 
 But it was the face that haunt me still. There was no mouth, for Famine needs no voice to scream. There were only vast, hollowed sockets where eyes should be, and yet, I felt it watching me. It saw past my skin, past my flesh, staring directly at the marrow of my bones, measuring the sustenance within. It radiated a coldness that had nothing to do with temperature; it was the chill of the empty belly, the frost of the final breath.
 
-The ground withered beneath its feet. I watched, paralyzed by a terror I had never known, as a patch of scrub brush—brown and nearly dead already—turned gray and crumbled into dust at its mere approach. It wasn’t feeding; it was negating. It was the void where life should be, walking among us.
+The ground withered beneath its feet. I watched, paralyzed by a terror I had never known, as a patch of scrub brush—brown and nearly dead already—turned gray and crumbled into dust at its mere approach. It wasn't feeding; it was negating. It was the void where life should be, walking among us.
 
 Around it, the air shimmered with the hallucinations of the starving. I saw phantom feasts, banquets of roasted meats and cool waters, flickering in and out of existence like faulty lantern light, tempting and taunting. The entity was the center of this madness, a black hole that swallowed hope and spat out despair.
 

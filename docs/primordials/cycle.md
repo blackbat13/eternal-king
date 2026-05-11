@@ -3,7 +3,7 @@
 ![Cycle](../assets/images/Cycle.png){ align=right width="300" }
 
 He is born screaming, like all of them.
-This time, in a crumbling apartment above a spice market in a city that doesn’t exist on any current map. The air is thick with cumin and diesel, and the walls sweat in the monsoon heat. A woman—exhausted, weeping—pulls him to her chest. The midwife cuts the cord and says, "A son. Strong."
+This time, in a crumbling apartment above a spice market in a city that doesn't exist on any current map. The air is thick with cumin and diesel, and the walls sweat in the monsoon heat. A woman—exhausted, weeping—pulls him to her chest. The midwife cuts the cord and says, "A son. Strong."
 He is not strong.  
 He is *ancient*.
 But he does not know it yet.
@@ -17,7 +17,7 @@ He believes *everything*.
 Until the fever comes.
 It starts as a shiver. Then fire in the blood. Then dreams—no, *memories*—of other lives.
 
-A knight on a frozen battlefield, sword in his gut, snow filling his mouth as he whispers a name he’s never heard: *"Elira."*  
+A knight on a frozen battlefield, sword in his gut, snow filling his mouth as he whispers a name he's never heard: *"Elira."*  
 A woman in a silver gown, poisoned at her coronation, watching her sister weep over the wineglass.  
 A child in a spacesuit, floating through the wreckage of a dead station, singing a lullaby in a language that died with the stars.  
 A monk who walked into a volcano, smiling.
@@ -29,7 +29,7 @@ Then, just before the breath stops, it comes.
 
 **Remember.**
 
-Not a voice. A *unfolding*. Like a scroll igniting from within. He sees it all—the thousand births, the thousand deaths, the thousand names he’s worn like borrowed coats. He sees the pattern. The spiral. The *design*.
+Not a voice. A *unfolding*. Like a scroll igniting from within. He sees it all—the thousand births, the thousand deaths, the thousand names he's worn like borrowed coats. He sees the pattern. The spiral. The *design*.
 He is not a man.
 
 He is **Cycle**.
@@ -65,7 +65,7 @@ The face in the crowd.
 Closer now.
 He laughs—a wet, broken sound.
 
-"I knew you’d be here," he whispers to no one.
+"I knew you'd be here," he whispers to no one.
 
 The snow falls.
 His fingers go numb.
@@ -74,7 +74,7 @@ He is not cursed.
 He is *necessary*.
 For how can the world turn if the wheel forgets its motion?
 How can life learn if it remembers every death?
-How can hope exist if it doesn’t keep coming back?
+How can hope exist if it doesn't keep coming back?
 He dies smiling.
 
 ---
@@ -83,7 +83,7 @@ He is born again.
 This time, in a neon-lit cradle beneath a sky of drones. A girl.  
 They name her *Nia*.
 She never speaks.  
-But when the rain hits the city’s glass skin, she stares upward—and weeps.
+But when the rain hits the city's glass skin, she stares upward—and weeps.
 Not from sadness.
 From *recognition*.
 And when she is old enough to dream?

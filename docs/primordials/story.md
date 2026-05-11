@@ -21,7 +21,7 @@ She does not whisper plots into the ears of poets.
 She does not *inspire*.
 She *precedes*.
 
-Every tale ever told—every hero’s rise, every villain’s fall, every love that burned too bright—was already *real* before the first voice gave it shape.
+Every tale ever told—every hero's rise, every villain's fall, every love that burned too bright—was already *real* before the first voice gave it shape.
 A king betrayed by his brother in a forgotten realm?
 A girl who walks into the dark and never comes back?
 A city built on lies, sinking into the sea?
@@ -82,7 +82,7 @@ But because it happened *because of him*.
 Because **Damien** does not follow stories.
 He *starts* them.
 And Libra?
-She makes sure they’re *worth telling*.
+She makes sure they're *worth telling*.
 
 ---
 
@@ -91,24 +91,24 @@ He was juggling suns.
 For fun.
 She stepped through the broken archway, her scale tipping toward *wonder*.
 
-"You’re late," he said, not looking.
+"You're late," he said, not looking.
 
 "I was watching your latest," she replied. "The one with the wolf-girl and the broken crown. The mortal version will call it a tragedy. I call it… *poetry*."
 
-He grinned, tossing a star like a tennis ball. "They’ll get it wrong, you know. They always do."
+He grinned, tossing a star like a tennis ball. "They'll get it wrong, you know. They always do."
 
-"They’ll get it *right enough*," she said. "That’s all a story needs."
+"They'll get it *right enough*," she said. "That's all a story needs."
 
 He paused.
 Then caught all three suns in one hand.
 
-"Do you ever wish you could tell them? Just say: *‘This happened. I was there.’*?"
+"Do you ever wish you could tell them? Just say: *‘This happened. I was there.'*?"
 
 She tilted her head. The word on her scale changed to *no*.
 Then to *yes*.
 Then to *always*.
 
-"I don’t tell stories, Damien," she said. "I *hold* them.
+"I don't tell stories, Damien," she said. "I *hold* them.
 And you?
 You *set them free*."
 
@@ -129,10 +129,10 @@ Every lie is *true somewhere*.
 Every dream has a shadow.
 Every fable has a footprint.
 Every fairy tale?
-It’s a memory.
+It's a memory.
 
 And when a child asks, *"Did that really happen?"*
-And the parent says, *"No, it’s just a story."*
+And the parent says, *"No, it's just a story."*
 Libra is there.
 In the pause.
 In the doubt.
@@ -144,7 +144,7 @@ But to the universe:
 It did.
 And it will again."**
 
-Because stories don’t end.
+Because stories don't end.
 They *return*.
 And she—balanced on the edge of everything ever said and unsaid—makes sure they do.
 With a little help.

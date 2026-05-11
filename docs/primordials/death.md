@@ -8,7 +8,7 @@ They appear as the figure mortals have always feared: tall, robed in folds of bl
 
 But Death is not cruel.
 
-They do not revel in the fall of kings or the weeping of mothers. They do not hunger. They *attend*. They are the last kindness, the gentle hand on the shoulder when the road ends. They are the whisper that says, *“Rest now. You were loved. You were real. You were enough.”*
+They do not revel in the fall of kings or the weeping of mothers. They do not hunger. They *attend*. They are the last kindness, the gentle hand on the shoulder when the road ends. They are the whisper that says, *"Rest now. You were loved. You were real. You were enough."*
 
 Long ago, before names had meaning, before stars learned to burn, the Primordials stirred in the void—Chaos, Death, Time, Silence, and the others—each a pulse in the dark, each a note in the first song of existence. Damien, the wild spark, the storm in the cradle of reality, once challenged Death in a game older than rules.
 
@@ -16,7 +16,7 @@ It happened at the edge of a dying universe, one that had flickered out like a c
 
 *"You claim all things, sister,"* he said, arms wide, chaos crackling in his fingers like lightning. *"But can you take what refuses to die?"*
 
-From his palm, he raised a single ember—a soul he had stolen from Death’s own shadow, one that had slipped through the cracks of fate. It pulsed in his hand, defiant, unyielding.
+From his palm, he raised a single ember—a soul he had stolen from Death's own shadow, one that had slipped through the cracks of fate. It pulsed in his hand, defiant, unyielding.
 
 Death stepped forward, not in anger, but in sorrow.
 

@@ -8,7 +8,7 @@ Not by me.
 Not by *you*.
 Because names have power.
 And *his* name?
-It doesn’t just call him.
+It doesn't just call him.
 It *wounds*.
 Even the air refuses to hold it.
 
@@ -16,7 +16,7 @@ Say it aloud, and your tongue will taste of rust.
 Say it twice, and the person you love most will flinch at your voice.  
 Say it three times?
 
-You’ll find a knife between your ribs—cold, sharp, *familiar*—and no memory of who put it there.
+You'll find a knife between your ribs—cold, sharp, *familiar*—and no memory of who put it there.
 
 He is **Betrayal**.
 
@@ -33,7 +33,7 @@ Into conversations.
 Into promises.
 Into the space between "I love you" and "but."
 
-He wears many faces—none of them his own, all of them true. A friend’s grin with the eyes of a stranger. A lover’s touch that leaves frostbite. A brother’s hand on your shoulder—just before it shoves you into the dark.
+He wears many faces—none of them his own, all of them true. A friend's grin with the eyes of a stranger. A lover's touch that leaves frostbite. A brother's hand on your shoulder—just before it shoves you into the dark.
 
 And his weapons?
 Knives.
@@ -42,13 +42,13 @@ Forged from silence, tempered in trust, edged with the weight of *almost*. They 
 They *unmake* you.
 Not your flesh.
 Your faith.
-One cut, and you remember the first time someone said they’d stay—and didn’t.  
+One cut, and you remember the first time someone said they'd stay—and didn't.  
 Another, and you see every secret kept, every lie disguised as kindness.
 A third?
 And you start to wonder if *you* were the one who betrayed *them*.
 
-That’s his gift.
-That’s his curse.
+That's his gift.
+That's his curse.
 
 ---
 
@@ -77,7 +77,7 @@ With *knives*.
 But not mortal knives.
 These were different.
 They *screamed* as they cut.
-They didn’t just pierce flesh.
+They didn't just pierce flesh.
 They pierced *chaos*.
 
 And when Damien fell—bleeding starlight, his form unraveling like thread pulled from a tapestry—he looked up.
@@ -85,7 +85,7 @@ And saw *him*.
 His brother.
 Standing in the shadows.
 Smiling.
-Holding the hilt of the blade still buried in Damien’s chest.
+Holding the hilt of the blade still buried in Damien's chest.
 The knife was black, not with soot, but with *absence*—as if it had cut a hole in reality itself. And around it, the air *wept*.
 Damien tried to rise.
 Failed.
@@ -102,7 +102,7 @@ Just that.
 
 And Betrayal?
 He knelt.
-Placed a hand on Damien’s shoulder—gentle, almost loving.
+Placed a hand on Damien's shoulder—gentle, almost loving.
 And whispered:
 
 *"Because someone had to teach you to stop trusting."*
@@ -135,8 +135,8 @@ He did not celebrate.
 He simply… moved on.
 To the next friend.
 The next vow.
-The next moment someone says, *"I’ll never leave you,"* and means it—*in that second*.
-Because that’s when the knife cuts deepest.
+The next moment someone says, *"I'll never leave you,"* and means it—*in that second*.
+Because that's when the knife cuts deepest.
 When the truth shifts.
 When love becomes lie.
 When *almost* becomes *never*.
@@ -144,7 +144,7 @@ When *almost* becomes *never*.
 ---
 
 Now?
-You’ve felt him.
+You've felt him.
 Not as a presence.
 As a *doubt*.
 
@@ -154,13 +154,13 @@ When you realize the person who knows you best… might be the one who hurts you
 
 That chill?
 That breath caught?
-That’s not fear.
-That’s *recognition*.
+That's not fear.
+That's *recognition*.
 He is there.
 Not always seen.
 Never named.
 But *felt*.
-And if you listen—*really* listen—you’ll hear it.
+And if you listen—*really* listen—you'll hear it.
 A whisper.
 Not in your ear.
 In your *memory*.
@@ -169,7 +169,7 @@ In your *memory*.
 
 *"You always do."*
 
-And you’ll wonder—
+And you'll wonder—
 Was it them?
 Or was it *you*?
 And in that question?
@@ -186,10 +186,10 @@ No reflection.
 Just void.
 And he says, low, so no one else can hear:
 
-**"One day, brother… I won’t ask why."**
+**"One day, brother… I won't ask why."**
 
 And in the darkness, something *smiles*.
-But you’ll never know if it’s Betrayal.
+But you'll never know if it's Betrayal.
 Or Chaos.
 Or both.
 
