@@ -124,6 +124,10 @@ nav:
       - '003': 'stories/hand/003.md'
       - '004': 'stories/hand/004.md'
       - '005': 'stories/hand/005.md'
+      - '006': 'stories/hand/006.md'
+      - '007': 'stories/hand/007.md'
+      - '008': 'stories/hand/008.md'
+      - '009': 'stories/hand/009.md'
     - 'Various Stories':
       - 'Stubborn Cult': 'stories/misc/stubborn_cult.md'
       - 'Roll the Dice': 'stories/misc/roll_the_dice.md'
