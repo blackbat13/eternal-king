@@ -8,7 +8,7 @@ Damien was drunk—on starlight, on irony, on the tears of a fallen archangel—
 He read it. Snorted.
 Then said, loud enough for the cosmos to *almost* hear:  
 
-**"Four Horsemen? Seriously? That's the best you've got? Why not make it dramatic? Add some flair. Make it… *iconic*."**
+**"Four Horsemen? Seriously? That's the best you've got? Why not make it dramatic? Add some flair. Make it... *iconic*."**
 
 And with a flick of his fingers, he *seeded* the idea.
 Not the wars.
@@ -24,7 +24,7 @@ And mortals?
 They ran with it.
 Wrote books. Painted frescoes. Screamed in temples.
 
-And so, **War**, **Pestilence**, **Famine**, and **Death**—who had never even *met* as a group before—became… *a brand*.
+And so, **War**, **Pestilence**, **Famine**, and **Death**—who had never even *met* as a group before—became... *a brand*.
 
 ---
 
@@ -52,7 +52,7 @@ And says, **"Finally."**
 
 **Pestilence** is confused.
 Not weak. Not kind. Not *mild*.
-Just… *misunderstood*.
+Just... *misunderstood*.
 Pestilence doesn't *want* to be on the list.
 
 "I mean," Pestilence says, sipping tea in a neon-lit café in a dimension where biology is optional, "one minute I'm minding my own business—evolving a virus that only affects sentient mold—and suddenly I'm in *prophecies*? With *horses*? I don't even *like* horses."
@@ -91,7 +91,7 @@ They wear a coat made of empty sacks.
 Their footsteps leave no mark—because the ground forgets they were there.
 Famine doesn't rage.
 Famine doesn't gloat.
-Famine just… *arrives*.
+Famine just... *arrives*.
 And when they do, the world learns a new word.
 *Less*.
 
@@ -134,7 +134,7 @@ And with that, They stepped into the dark.
 Leaving the three alone again.
 Still not a *group*.
 Still not *legendary*.
-Still just… what they are.
+Still just... what they are.
 
 ---
 

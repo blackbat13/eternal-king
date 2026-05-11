@@ -35,8 +35,8 @@ And **Libra** was there.
 She stands—when she stands—as a woman woven from half-finished scripts and unwritten endings. Her skin shifts like pages in a windless room. Her hair is a cascade of ink, sometimes black, sometimes gold, sometimes the faded blue of old parchment. Her eyes? One sees the past. The other sees the *first draft*.
 She wears a coat stitched from opening lines.
 
-> *"It was the best of times…"*  
-> *"In a hole in the ground there lived a hobbit…"*  
+> *"It was the best of times..."*  
+> *"In a hole in the ground there lived a hobbit..."*  
 > *"Call me Ishmael."*
 
 Each phrase pulses faintly, like a heartbeat.
@@ -93,7 +93,7 @@ She stepped through the broken archway, her scale tipping toward *wonder*.
 
 "You're late," he said, not looking.
 
-"I was watching your latest," she replied. "The one with the wolf-girl and the broken crown. The mortal version will call it a tragedy. I call it… *poetry*."
+"I was watching your latest," she replied. "The one with the wolf-girl and the broken crown. The mortal version will call it a tragedy. I call it... *poetry*."
 
 He grinned, tossing a star like a tennis ball. "They'll get it wrong, you know. They always do."
 

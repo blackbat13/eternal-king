@@ -22,7 +22,7 @@ Pouring a thread of his own essence—not the roaring inferno of creation, but t
 
 ---  
 
-Raising a mortal-turned-chaos-child in the Castle of the Eternal King was… *chaotic*.  
+Raising a mortal-turned-chaos-child in the Castle of the Eternal King was... *chaotic*.  
 
 Lorain didn't crawl—she *teleported* from the nursery to the throne room, giggling as she rearranged Damien's celestial maps into hopscotch grids. She didn't cry for milk—she summoned constellations into her bottle. When she threw tantrums, reality *itched*: gravity reversed in the east wing, teacups sang opera, Damien's crown turned into a rubber chicken.
 

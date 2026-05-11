@@ -12,7 +12,7 @@ Xeroth, currently in his "artistic interpretation of a necrotic amalgam" form, l
 
 Vera Zharkova shot him a glare through one milky, half-rotted eye. She reached down, grabbed her arm by the wrist, and *slammed* it back into the socket with a sickening *pop*. "If I wanted to play dress-up with corpses" she hissed, voice rasping like a blade on stone, "I would've stayed in the Bratva."
 
-*"Oh, come now"* Xeroth gurgled, shifting one of his heads to whisper conspiratorially. *"You know Damien loves a good prank. And this? This is *art*. Besides, you're not *actually* rotting. Just… temporarily undead-adjacent. Think of it as method observation."*
+*"Oh, come now"* Xeroth gurgled, shifting one of his heads to whisper conspiratorially. *"You know Damien loves a good prank. And this? This is *art*. Besides, you're not *actually* rotting. Just... temporarily undead-adjacent. Think of it as method observation."*
 
 Vera grunted. "Method *insanity*."
 
@@ -22,7 +22,7 @@ They moved through the ruins, passing ranks of mindless dead, listening, watchin
 
 Vera nodded, her jaw clicking. "Then we wait. Let him collapse. No need to waste moy tsar's time."
 
-*"Ah, but where's the fun in that?"* Xeroth shifted again—this time into a single, emaciated figure in tattered priest's robes, face sunken, eyes glowing faintly violet. *"What if we… *help* him fall? Just a little nudge. A whisper in the dark. A misplaced rune. Damien *did* say to determine if he'd collapse on his own. He didn't say we couldn't… *encourage* the process."*
+*"Ah, but where's the fun in that?"* Xeroth shifted again—this time into a single, emaciated figure in tattered priest's robes, face sunken, eyes glowing faintly violet. *"What if we... *help* him fall? Just a little nudge. A whisper in the dark. A misplaced rune. Damien *did* say to determine if he'd collapse on his own. He didn't say we couldn't... *encourage* the process."*
 
 Vera narrowed her eyes. "You're going to get us flayed by the King if this goes wrong."
 
@@ -64,25 +64,25 @@ Damien sipped his tea, utterly serene. "I knew *Xeroth* would miscalculate. I di
 
 Nyx didn't arrive with a bang. She arrived with *silence*.  
 
-One moment, the necromancer stood atop the shattered spire, arms raised as the Hollow Choir's shriek reached a fever pitch. The next, a figure materialized from the swirling necrotic mist—a woman carved from moonlight and shadow. Her gown was the deep black of a starless void, clinging to curves that moved with predatory grace. Her skin was pale as bone, but her eyes… her eyes were *alive*. Not with stolen life, but with something older, wilder. *Chaos*.  
+One moment, the necromancer stood atop the shattered spire, arms raised as the Hollow Choir's shriek reached a fever pitch. The next, a figure materialized from the swirling necrotic mist—a woman carved from moonlight and shadow. Her gown was the deep black of a starless void, clinging to curves that moved with predatory grace. Her skin was pale as bone, but her eyes... her eyes were *alive*. Not with stolen life, but with something older, wilder. *Chaos*.  
 
 Malak Vorth froze. His breath hitched.  
 
 "Who—?" he rasped, power faltering for the first time.  
 
-Nyx smiled. Slow. Deadly. She glided toward him, bare feet leaving no trace on the broken stone. "They call me Nyx" she purred, her voice like velvet over broken glass. "The night has been… *lonely*." She reached out, a single finger tracing the air near his cheek. "You play with death so boldly. But do you truly *understand* it?"  
+Nyx smiled. Slow. Deadly. She glided toward him, bare feet leaving no trace on the broken stone. "They call me Nyx" she purred, her voice like velvet over broken glass. "The night has been... *lonely*." She reached out, a single finger tracing the air near his cheek. "You play with death so boldly. But do you truly *understand* it?"  
 
-The necromancer's arrogance melted into rapt fascination. He'd spent centuries forcing the dead to obey, but *this*… this was something new. Something *free*. Untamed. She wasn't a slave to the grave. She *was* the grave—and she *chose* to walk.  
+The necromancer's arrogance melted into rapt fascination. He'd spent centuries forcing the dead to obey, but *this*... this was something new. Something *free*. Untamed. She wasn't a slave to the grave. She *was* the grave—and she *chose* to walk.  
 
-"You're… different" he breathed, stepping closer, entranced. "Not bound. Not *broken*."  
+"You're... different" he breathed, stepping closer, entranced. "Not bound. Not *broken*."  
 
-"Death broke me once" Nyx murmured, leaning in until her lips nearly brushed his ear. "But *he* remade me." She didn't name Damien. She didn't need to. The raw, ancient power radiating from her was signature enough. "Imagine… *your* power, unchained. Not *stealing* life… but *commanding* the void between."  
+"Death broke me once" Nyx murmured, leaning in until her lips nearly brushed his ear. "But *he* remade me." She didn't name Damien. She didn't need to. The raw, ancient power radiating from her was signature enough. "Imagine... *your* power, unchained. Not *stealing* life... but *commanding* the void between."  
 
 Malak Vorth's eyes widened. He saw it—*felt* it—a vision Nyx wove with her voice: not an army of mindless dead, but legions of *willing* shadows, dancing to his will. True immortality. True dominion. His hands trembled, not with exhaustion, but with *greed*.  
 
-"It's… possible?" he whispered, utterly ensnared.  
+"It's... possible?" he whispered, utterly ensnared.  
 
-Nyx's smile deepened. "Only if you let *me* show you." She pressed a hand to his chest. Not to stop his heart—he had none left—but to *feel* the hollow where it should be. "Let go of the choir, Malak. Let go of the *weakness* of stolen souls. Embrace the *silence*…"  
+Nyx's smile deepened. "Only if you let *me* show you." She pressed a hand to his chest. Not to stop his heart—he had none left—but to *feel* the hollow where it should be. "Let go of the choir, Malak. Let go of the *weakness* of stolen souls. Embrace the *silence*..."  
 
 And he did.  
 
@@ -96,11 +96,11 @@ Below, Vera and Xeroth watched from the ruins.
 
 Vera reattached her arm with a grimace. "Focus. The moment he lets go of the choir—"  
 
-"—we collapse the ritual's foundation" Vera finished. "But Nyx… she's *in* too deep."  
+"—we collapse the ritual's foundation" Vera finished. "But Nyx... she's *in* too deep."  
 
-Above, Nyx had Malak Vorth exactly where she wanted him—kneeling, eyes closed, utterly surrendered to her whisper. But then… he smiled. A slow, cruel twist of lips.  
+Above, Nyx had Malak Vorth exactly where she wanted him—kneeling, eyes closed, utterly surrendered to her whisper. But then... he smiled. A slow, cruel twist of lips.  
 
-"Foolish night-bloom" he rasped, eyes snapping open. They glowed with a sickly green light. "You think *I* am the one being seduced?" His hand shot out, fingers closing around Nyx's throat. Dark chains of necrotic energy erupted from his palm, wrapping her wrists, her waist. "I *know* your scent. You were *his* pet once. The Master's broken doll. And now… you deliver yourself to *me*."  
+"Foolish night-bloom" he rasped, eyes snapping open. They glowed with a sickly green light. "You think *I* am the one being seduced?" His hand shot out, fingers closing around Nyx's throat. Dark chains of necrotic energy erupted from his palm, wrapping her wrists, her waist. "I *know* your scent. You were *his* pet once. The Master's broken doll. And now... you deliver yourself to *me*."  
 
 Nyx's breath caught. Not from the chokehold—but from the memory. *The Master*. The centuries of chains. The fire. The *hunger*. For a heartbeat, the terror of her past flooded back, freezing her Chaos-fueled strength.  
 
@@ -124,7 +124,7 @@ Back at the bar, Damien set down his teacup. A single, satisfied nod.
 
 Lorain glared. "You sent her into *that*? After what she's been through?"  
 
-Damien's eyes held galaxies. "She needed to know she could face the memory… and *win*." He glanced toward the door as it shimmered open. Nyx stepped through, her gown pristine, eyes blazing with hard-won triumph. Her wings—dark as a raven's shadow—were furled tight.  
+Damien's eyes held galaxies. "She needed to know she could face the memory... and *win*." He glanced toward the door as it shimmered open. Nyx stepped through, her gown pristine, eyes blazing with hard-won triumph. Her wings—dark as a raven's shadow—were furled tight.  
 
 She didn't look at Damien. She looked at Vera and Xeroth, who'd just stumbled in, Vera still covered in grave dirt, Xeroth now a disgruntled badger.  
 

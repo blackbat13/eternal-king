@@ -4,7 +4,7 @@
 
 The first time Agnes set herself on fire, she was seven years old and trying to light the oven.  
 
-Not *metaphorically*. The wooden cottage in her remote Finnish village didn't just catch flame—it *screamed*. Walls peeled like burnt paper, the cast-iron stove melted into liquid silver, and Agnes stood unharmed in the center of the inferno, her hair a crown of living blue fire. Her grandmother pulled her from the ashes, not with fear, but grim understanding. *"The blood of the First Spark runs in you"* she'd rasped, pressing a cold iron token into Agnes' soot-streaked palm. *"They'll come for you now. When they do… run."*  
+Not *metaphorically*. The wooden cottage in her remote Finnish village didn't just catch flame—it *screamed*. Walls peeled like burnt paper, the cast-iron stove melted into liquid silver, and Agnes stood unharmed in the center of the inferno, her hair a crown of living blue fire. Her grandmother pulled her from the ashes, not with fear, but grim understanding. *"The blood of the First Spark runs in you"* she'd rasped, pressing a cold iron token into Agnes' soot-streaked palm. *"They'll come for you now. When they do... run."*  
 
 The "they" arrived when Agnes turned twenty-two. **The Weavers of Order**. Cloaked figures who moved like shadows given teeth, they'd tracked her bloodline for centuries—a lineage cursed (or blessed) with *raw attunement* to magic's delicate threads. To them, Agnes wasn't a girl; she was a *loose end*, a mortal who could unravel cosmic balance with a stray thought. They burned her grandmother's hut to the ground, scattering ash like cursed snow. Agnes ran, the iron token burning against her skin, as the Weavers' whispers slithered through the pines: *"You are chaos incarnate. You must be unmade."*  
 
@@ -17,7 +17,7 @@ It *unstitched reality*.
 One moment: frozen Nordic forest. The next: **Lorain's Bar**, mid-sentence as Xeroth, in a form of disgruntled badger, lectured a sobbing time-traveler about "emotional baggage." Agnes collapsed onto the floor, hair flaring like a supernova, the token smoking in her grip. Lorain was at her side instantly, wings shielding her from the bar's curious stares. *"Breathe"* she murmured, pressing a glass of starlight into Agnes' trembling hand. *"You're safe here."*  
 
 But safety came with strings.  
-The Weavers could still *feel* her—a splinter in the multiverse's skin. Damien appeared in a swirl of shattered galaxies, eyes narrowed at the token in her palm. *"Ah"* he said, plucking it from her. *"Baba Yaga's key. No wonder they're hunting you."* He tossed it to Xeroth. *"Hide this. And fetch the old witch. Tell her… her prodigy's home."*  
+The Weavers could still *feel* her—a splinter in the multiverse's skin. Damien appeared in a swirl of shattered galaxies, eyes narrowed at the token in her palm. *"Ah"* he said, plucking it from her. *"Baba Yaga's key. No wonder they're hunting you."* He tossed it to Xeroth. *"Hide this. And fetch the old witch. Tell her... her prodigy's home."*  
 
 ---  
 

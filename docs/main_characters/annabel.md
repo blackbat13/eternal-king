@@ -12,7 +12,7 @@ That was the moment everything changed.
 
 Annabel didn't fear Damien. She *recognized* him. Not as a god or a king, but as something *other*, something like her—alone, scarred, misunderstood. She didn't beg for power or safety; she offered him companionship. A game. A laugh. A reason to stay. And he stayed, not because she asked, but because he *wanted* to.
 
-At first, she didn't understand what she was becoming. She was just… herself. Shy, quiet, a little awkward. She didn't want titles or thrones; she wanted *him*—not his power, not his Chaos, not his crown. Just Damien. The one who teased her, who brought her snacks, who kissed her forehead when she fell asleep mid-boss fight.
+At first, she didn't understand what she was becoming. She was just... herself. Shy, quiet, a little awkward. She didn't want titles or thrones; she wanted *him*—not his power, not his Chaos, not his crown. Just Damien. The one who teased her, who brought her snacks, who kissed her forehead when she fell asleep mid-boss fight.
 
 But love like that—pure, fearless, unasked-for—does not go unnoticed. It changes things. It changed *her*. She learned to speak her needs, to say "stay" without fear, to let others in—Lorain with her light, Vera with her fire, Agnes with her magic, Nyx with her silence. She learned to breathe in the storm of emotions, not drown in it. She learned to stand in the castle of silence and make it *sing*.
 

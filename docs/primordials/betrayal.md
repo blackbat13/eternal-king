@@ -132,7 +132,7 @@ It was to *remake*.
 And Betrayal?
 He did not gloat.
 He did not celebrate.
-He simply… moved on.
+He simply... moved on.
 To the next friend.
 The next vow.
 The next moment someone says, *"I'll never leave you,"* and means it—*in that second*.
@@ -150,7 +150,7 @@ As a *doubt*.
 
 When your lover hesitates before saying "I love you."  
 When your friend laughs a little too loud at your pain.  
-When you realize the person who knows you best… might be the one who hurts you worst.
+When you realize the person who knows you best... might be the one who hurts you worst.
 
 That chill?
 That breath caught?
@@ -186,7 +186,7 @@ No reflection.
 Just void.
 And he says, low, so no one else can hear:
 
-**"One day, brother… I won't ask why."**
+**"One day, brother... I won't ask why."**
 
 And in the darkness, something *smiles*.
 But you'll never know if it's Betrayal.

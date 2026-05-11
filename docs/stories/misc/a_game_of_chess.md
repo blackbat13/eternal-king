@@ -6,7 +6,7 @@ No skulls, no flickering candles, no endless void. Instead, it was a modest, if 
 
 Before him stood Reaper-472, a lanky figure in the standard-issue grey hooded robe, his scythe leaning against a potted fern that technically shouldn't exist in this dimension. His hollow eye sockets were currently narrowed in what might have been indignation.
 
-"So let me get this straight," Death said, voice calm but edged with the weight of ten million exasperated sighs. "You *allowed* a mortal—a *medieval jester*, no less—to challenge you to a game of chess… for his soul?"
+"So let me get this straight," Death said, voice calm but edged with the weight of ten million exasperated sighs. "You *allowed* a mortal—a *medieval jester*, no less—to challenge you to a game of chess... for his soul?"
 
 "He invoked the *ancient pact*," Reaper-472 insisted, voice echoing like wind through a crypt. "Said it was written in the Codex of Mortal Gambits, Article Twelve, Subsection Gamma—"
 
@@ -20,7 +20,7 @@ Death pinched the bridge of his nose again. "Reaper, I *created* you. I carved y
 
 Death stared.
 
-"You… lost a soul… because of *pickled eggs*?"
+"You... lost a soul... because of *pickled eggs*?"
 
 "Well, I didn't *lose*—I *postponed*. Indefinitely. Until the game concludes."
 

@@ -8,7 +8,7 @@ Single musical note, pure and unchanging. That is Their name. Not a sound your e
 
 They are **Order**.
 
-And They wear the shape of a conductor. Tall, still, clad in a coat of white silk threaded with golden equations that shift when unobserved. Their face is calm, symmetrical to the point of impossibility, eyes twin metronomes ticking in perfect unison. In Their hand, a baton of solidified logic, carved from the axis of a thousand balanced worlds. When They raise it, reality *listens*. Stars align. Storms cease. Chaos… *bends*. But not *him*. Never *him*.
+And They wear the shape of a conductor. Tall, still, clad in a coat of white silk threaded with golden equations that shift when unobserved. Their face is calm, symmetrical to the point of impossibility, eyes twin metronomes ticking in perfect unison. In Their hand, a baton of solidified logic, carved from the axis of a thousand balanced worlds. When They raise it, reality *listens*. Stars align. Storms cease. Chaos... *bends*. But not *him*. Never *him*.
 
 ---
 

@@ -22,7 +22,7 @@ Death stepped forward, not in anger, but in sorrow.
 
 *"You delay the inevitable, brother. Not deny it. Even Chaos must end."*
 
-*"Must it?"* Damien grinned, wild and bright. *"Or must it simply… change?"*
+*"Must it?"* Damien grinned, wild and bright. *"Or must it simply... change?"*
 
 And with a flick of his wrist, he *rewrote* the soul—not into life, not into death, but into *story*. He spun it into a myth, a name whispered across dimensions, a legend that would never fade. A being that could not die, because it was already remembered.
 
@@ -46,7 +46,7 @@ And when They come for a mortal, cloaked and silent, sometimes—just sometimes�
 
 Because Death knows Damien is watching.
 
-And Damien knows Death will always come for him… eventually.
+And Damien knows Death will always come for him... eventually.
 
 But not tonight.
 

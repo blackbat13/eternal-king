@@ -2,7 +2,7 @@
 
 ![Doubt](../assets/images/Doubt.png){ align=right width="300" }
 
-…Wait.
+...Wait.
 Was it *he*?
 I said "he." But who said that was right? Who decided the embodiment of Doubt had to be a *he*? That it had to be *anything* at all?
 
@@ -12,14 +12,14 @@ Maybe it was none of those, and I've already started wrong.
 
 Perhaps the embodiment of Doubt doesn't have a form. Or maybe it has too many. Maybe it shifts with every hesitation, every question, every flicker of uncertainty in a mortal mind.  
 But then—was it even an *embodiment*?  
-Or just… a *lack*?
+Or just... a *lack*?
 No. No, that can't be. There *is* something. I *felt* it. Or—did I just imagine I felt it because I expected to?
 
 Let me try again.
 
 ---
 
-There was—no, *is*—a being. Or… *was* there?  
+There was—no, *is*—a being. Or... *was* there?  
 They go by many names. None of them stick.  
 Once, they called themself **Ves**, whispered in the dark between choices.  
 Then **Mira**, when they almost believed in reflection.  
@@ -63,7 +63,7 @@ Damien's smile softened. Not mocking. Not kind. *Curious*.
 
 "You know," he said, "I've unmade gods. Shattered laws. Turned truth into punchlines. But you? You're the only one who makes *me* wonder if any of it matters."
 
-The figure looked up. "You… doubt?"
+The figure looked up. "You... doubt?"
 
 "No," Damien said. "But I wonder what it would be like to."
 
@@ -79,8 +79,8 @@ Maybe it's true.
 Maybe it's not.
 Maybe the embodiment of Doubt isn't a being at all—maybe it's *this very text*, stumbling over itself, second-guessing every word, erasing its own footprints.
 Maybe *you* doubt it too.
-And if you do…
-Then perhaps, just for a moment…
+And if you do...
+Then perhaps, just for a moment...
 They were real.
 Or—wait.
 Were they?

@@ -24,13 +24,13 @@ Not his skin. *Her fangs*. A searing pain shot up her jaw, as if she'd bitten a 
 
 Nyx froze. *Chaos*. The word was a death sentence. Only primordials wielded Chaos. Only *gods*. She dropped to her knees, fangs bared in submission. *"Forgive me, my lord. I didn't know—"*  
 
-*"Of course you didn't"* Damien cut in, crouching to meet her eyes. His gaze wasn't angry. It was… *pitying*. *"You reek of fear. And worse—obedience."* He stood, scanning the decrepit mansion. *"Where is he?"*  
+*"Of course you didn't"* Damien cut in, crouching to meet her eyes. His gaze wasn't angry. It was... *pitying*. *"You reek of fear. And worse—obedience."* He stood, scanning the decrepit mansion. *"Where is he?"*  
 
 She didn't answer. She *couldn't*. Her master's psychic chains still coiled around her tongue.  
 
 Damien sighed. *"Ah. The old ways."* He snapped his fingers.  
 
-No thunder. No explosion. Just… *silence*.  
+No thunder. No explosion. Just... *silence*.  
 
 The chains snapped. The mansion *unraveled*. Bricks turned to moths. Windows became sighs. And in the grand hall, where her master had lounged on a throne of human bones, only a pile of ash remained—still warm, still *screaming*.  
 

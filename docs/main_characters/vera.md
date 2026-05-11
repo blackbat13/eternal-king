@@ -16,7 +16,7 @@ She became a ghost in the shadows of ten thousand worlds—St. Petersburg alleys
 
 Then came the night she stabbed a god in the heart.  
 
-Damien found her in the ruins of a dead city, while he was hunting a warlord who'd trafficked souls through dimensional rifts. Vera didn't know he was the Eternal King—just another mark, another heartbeat to silence. She lunged from the shadows, her knife sinking deep into his chest… and *stuck*. Not in flesh, but in something older, vaster—a storm given form. Damien didn't flinch. He caught her wrist, his grip gentle as snowfall, and looked into her eyes. Not with anger. With *recognition*.  
+Damien found her in the ruins of a dead city, while he was hunting a warlord who'd trafficked souls through dimensional rifts. Vera didn't know he was the Eternal King—just another mark, another heartbeat to silence. She lunged from the shadows, her knife sinking deep into his chest... and *stuck*. Not in flesh, but in something older, vaster—a storm given form. Damien didn't flinch. He caught her wrist, his grip gentle as snowfall, and looked into her eyes. Not with anger. With *recognition*.  
 
 *"You're tired"* he said, plucking the knife from his chest like a stray hair. *"Tired of being a weapon. Tired of burning."*  
 

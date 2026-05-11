@@ -21,7 +21,7 @@ He is **Change**.
 Not revolution.
 Not destruction.
 Not progress.
-Just… *different*.
+Just... *different*.
 The turn of the page.
 The blink of an eye.
 The moment you realize you're not who you were yesterday.
@@ -33,7 +33,7 @@ The moment you realize you're not who you were yesterday.
 **Note:** Xeroth predates duality. Observed in earliest void not as entity, but as *instability in continuity*. Coalesced into form only after first paradox: "This is, but was not, and will not be."  
 
 **Relationship with Chaos (Designation: Damien, Eternal King):**  
-Mutual recognition. Not siblinghood (as with Death, Nyx, etc.), but *mirroring*. Chaos creates through disruption. Change enables through transformation. One is the storm. The other is the wind that decides where it goes.  
+Mutual recognition. Not only siblinghood (as with Death, Nyx, etc.), but also *mirroring*. Chaos creates through disruption. Change enables through transformation. One is the storm. The other is the wind that decides where it goes.  
 
 **Anomaly:** Xeroth remembers being nothing. Claims this is why he understands Damien—because Chaos, too, was once *only potential*.  
 
@@ -46,9 +46,9 @@ Mutual recognition. Not siblinghood (as with Death, Nyx, etc.), but *mirroring*.
 The raven tilts its head.
 Lorain slides a glass toward it—no liquid inside. Just shifting colors, like oil on water.
 
-"For me?" the raven asks. Its voice is smooth, layered—like three people speaking at once.
+"**For me?**" the raven asks. Its voice is smooth, layered—like three people speaking at once.
 
-She smirks. "Only if you stop turning my napkins into origami wolves."
+She smirks. "**Only if you stop turning my napkins into origami wolves.**"
 
 The raven blinks.
 Then, in a motion too fast to see, it becomes a fox—small, white, with eyes like clock faces. It knocks the glass over with its paw.
@@ -60,11 +60,11 @@ And Xeroth—then a shadow with too many edges—stepping out of the wall.
 Not to comfort.
 To *shift*.
 
-"You could burn them all," Xeroth said, voice like a door creaking open. "Or… you could stop being the one who saves them."
+"**You could burn them all.**" Xeroth said, voice like a door creaking open. "**Or... you could stop being the one who saves them.**"
 
-Damien turned. "And become what?"
+Damien turned. "**And become what?**"
 
-Xeroth smiled. "Whoever you want."
+Xeroth smiled. "**Whoever you want.**"
 
 And just like that—Damien *changed*.
 Not into a monster.
@@ -89,8 +89,8 @@ weeping for mortals
 who would never love him back.  
 
 And he said:  
-*"You don't need their loyalty.  
-You need your own permission."*  
+"**You don't need their loyalty.  
+You need your own permission.**"  
 
 And Chaos rose.  
 Not healed.  
@@ -107,22 +107,22 @@ Tall. Lean. Hair that shifts between black, silver, and flame-red depending on w
 He walks to the window.
 Outside, the void pulses—realities flickering like faulty bulbs.
 
-"You feel it?" he asks, not turning.
+"**You feel it?**" he asks, not turning.
 
-Lorain sips her drink. "The shift?"
+Lorain sips her drink. "**The shift?**"
 
-"Yeah. Something's coming. A *big* change. Not destruction. Not salvation. Just… *different*."
+"**Yeah. Something's coming. A *big* change. Not destruction. Not salvation. Just... *different*.**"
 
-She frowns. "Papa's going to love that."
+She frowns. "**Papa's going to love that.**"
 
 Xeroth laughs.
 And for a second, his face becomes Damien's.
 Then it's gone.
 
-"He already does," Xeroth says. "We always do."
+"**He already does.**" Xeroth says. "**We always do.**"
 
 Because Chaos and Change?
-They're not brothers.
+They're not only brothers.
 They're *echoes*.
 One is the spark.
 The other is the flame's direction.
@@ -132,7 +132,7 @@ They don't need to speak.
 They don't need to meet.
 They just *are*.
 
-And when the universe finally asks, *"Why is nothing ever the same?"*
+And when the universe finally asks, "*Why is nothing ever the same?*"
 They'll both smile.
 And say nothing.
 Because the answer?
@@ -140,4 +140,4 @@ Is already happening.
 
 ## Final Line — Spoken by a Child in a Dream, Never Woken From
 
-"He was here. Then he wasn't. But also—he never left."
+"**He was here. Then he wasn't. But also—he never left.**"

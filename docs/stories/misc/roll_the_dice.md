@@ -28,11 +28,11 @@ She was a storm given form—pale as moonlight, hair like smoke, eyes twin voids
 
 "You've been using my dice" she said, voice low and edged with thunder.
 
-Xeroth blinked. "Your… dice?"
+Xeroth blinked. "Your... dice?"
 
 Nyx held out a hand. In it hovered three obsidian cubes, each etched with runes that pulsed like heartbeats. "These were forged in the blood of my first master. I *blessed* them. They don't just roll fate—they *remember* it."
 
-Xeroth's raccoon ears flattened. "Ah. That explains why the odds were so… *personal*."
+Xeroth's raccoon ears flattened. "Ah. That explains why the odds were so... *personal*."
 
 Lorain groaned. "Oh no. You used *cursed* dice? Xeroth, those aren't just gambling tools, they're *relics*."
 

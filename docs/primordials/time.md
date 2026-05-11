@@ -54,7 +54,7 @@ She turns to the mirror behind the bar. And in its reflection, she is not a woma
 
 ## [Insert: Chronos Speaking — Audio Fragment Recovered from Void Echo]
 
-*"You think I hate him? Damien? No. I love him. He is the wild note in my symphony. The tear in my fabric. Without him, time would be perfect. And perfection… is death."*
+*"You think I hate him? Damien? No. I love him. He is the wild note in my symphony. The tear in my fabric. Without him, time would be perfect. And perfection... is death."*
 
 *"So let him break the rules. Let him save the doomed, revive the dead, twist fate into knots. Because then I have something to fix."*
 
